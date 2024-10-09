@@ -9,3 +9,8 @@ Meu nome é Lisandro Carmona
 ### Você entrar em contato comigo 📫
 
 Carmonalisandro453@gmail.com
+
+Lisandro.bravo@escola.pr.gov.br
+
+
+https://tenor.com/pt-BR/view/dragon-ball-z-goku-astro-lightning-ssj-goku-gif-23522484
